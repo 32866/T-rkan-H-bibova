@@ -1,2 +1,2 @@
-# T-rkan-H-bibova
+# Turkan-Habibova
 Redame-edit
